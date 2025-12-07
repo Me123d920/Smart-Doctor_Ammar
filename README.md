@@ -1,2 +1,2 @@
-# Smart-Doctor_Ammar
-jjjjj
+# Smart-Doctor_Ammar#
+google.com, pub-3350230288279658, DIRECT, f08c47fec0942fa0
